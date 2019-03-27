@@ -1,3 +1,7 @@
-# Welcome to my blog
+# Welcome to my first blog, Honey
 
-I'm glad you are here. I plan to talk about ...
+🎉 I just completed my second task on this platform. 
+
+## So, whats is the next step?
+
+
