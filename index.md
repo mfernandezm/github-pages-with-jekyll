@@ -2,6 +2,6 @@
 
 🎉 I just completed my second task on this platform. 
 
-## So, whats is the next step?
+## So, what s is the next step?
 
 
